@@ -1,0 +1,2 @@
+# MinersGot
+Free
